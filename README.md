@@ -1,2 +1,0 @@
-# thendralagrifarms.github.io
-Website
